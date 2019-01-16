@@ -7,7 +7,7 @@ Introduction
 
 My family and I have been serving as church planting missionaries to Thailand since 2010. My wife and 3 beautiful daughters.
 
-This packet of information is to introduce you to our family and the ministry God has given us. After reviewing the information, if the Lord leads, we would be honored for the opportunity to partner with you through prayer and/or financial support.
+This is to introduce you to our family and the ministry God has given us. After reviewing the information, if the Lord leads, we would be honored for the opportunity to partner with you through prayer and/or financial support.
 
 Thank you for your consideration!
 ---------------------------------
@@ -252,7 +252,7 @@ What we are preparing for
 
    -  long for people who will come and give their lives to learn a language, give up some comforts to get the gospel to 99% of Thai people who don't know Jesus
 ---
-Would you partner with us to see this come to pass??
+> Would you partner with us to see this come to pass??
 ----------------------------------------------------
 
 ---
@@ -261,40 +261,40 @@ Ministry Timeline --- Year summaries
 
 Timeline on the side showing major events and pictures
 
-# 2005
+#### 2005
 
 -  Graduated from Pensacola Christian College
 
 -  6 month Missions Internship in Peru
 
-# 2006 -- 2010
+#### 2006 -- 2010
 
 -  Help to plant Vision Baptist Church, Alpharetta, GA
 
-# 2011---2013
+#### 2011---2013
 
 
 -  Began Deputation as missionary to Thailand
 
-# 2013 --- 2015
+#### 2013 --- 2015
 
 
 -  Arrived in Thailand and started Language School
 
 -  Our 2nd Daughter Born in Thailand
 
-# 2015 --- Present
+#### 2015 --- Present
 
 
 -  Moved to new area of Bangkok and began looking for the location to pioneer a new church plant
 
 -  Our 3rd daughter born 2 weeks before the 1st service of the church
 
--  May 1, 2016 - First service of Grace Baptist Church of Bangkok with \~50 people in attendance (but maybe only 20 from the area)
+-  **May 1, 2016** - First service of Grace Baptist Church of Bangkok with \~50 people in attendance (but maybe only 20 from the area)
 
--  May 2017 - 1st Year Anniversary Video
+-  **May 2017** - 1st Year Anniversary Video
 
-# 2019
+#### 2019
 
 
 -  Taking our 1st full Furlough since being in Thailand to raise funds for the next term and stage of ministry and our family
