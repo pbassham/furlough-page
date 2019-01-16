@@ -1,20 +1,21 @@
 <!-- TOC -->
 
 - [Introduction](#introduction)
-- [2019 Furlough](#2019-furlough)
+- [2019 Furlough Goals](#2019-furlough-goals)
 - [Current Ministry in Thailand](#current-ministry-in-thailand)
   - [1\. Planted 1st Church in 2016](#1%5C-planted-1st-church-in-2016)
   - [2\. Daily Discipleship and Training](#2%5C-daily-discipleship-and-training)
-  - [3\. Special Events](#3%5C-special-events)
-  - [4\. Producing Materials](#4%5C-producing-materials)
+  - [3\. Special Events and Outreach](#3%5C-special-events-and-outreach)
+  - [4\. Materials](#4%5C-materials)
   - [5\. Media Outreach](#5%5C-media-outreach)
 - [The Land to Which We Are Called](#the-land-to-which-we-are-called)
-  - [Bangkok](#bangkok)
-  - [Religion](#religion)
-  - [Culture](#culture)
-  - [Our Location in the City Center](#our-location-in-the-city-center)
+  - [Bangkok, Thailand -- 14 Million People](#bangkok-thailand----14-million-people)
+  - [Our Location in the City Center of Bangkok](#our-location-in-the-city-center-of-bangkok)
+  - [Thai Religion – 99% Buddhist, 0.7% Christian](#thai-religion--99%25-buddhist-07%25-christian)
+  - [Thai Culture](#thai-culture)
 - [Praising Him for our First Term...](#praising-him-for-our-first-term)
-- [5 Goals Looking forward...](#5-goals-looking-forward)
+- [Goals Looking forward...](#5-goals-looking-forward)
+- [Ministry Timeline](#ministry-timeline)
 
 <!-- /TOC -->
 
