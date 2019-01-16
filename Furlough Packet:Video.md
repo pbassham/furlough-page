@@ -1,33 +1,20 @@
 <!-- TOC -->
 
- - [Introduction](#introduction)
-
-- [Our Current Ministry](#our-current-ministry)
-
-  - [1\. Daily Discipleship](#1%5C-daily-discipleship)
-  - [2\. Weekly Services](#2%5C-weekly---services)
+- [Introduction](#introduction)
+- [2019 Furlough](#2019-furlough)
+- [Current Ministry in Thailand](#current-ministry-in-thailand)
+  - [1\. Planted 1st Church in 2016](#1%5C-planted-1st-church-in-2016)
+  - [2\. Daily Discipleship and Training](#2%5C-daily-discipleship-and-training)
   - [3\. Special Events](#3%5C-special-events)
   - [4\. Producing Materials](#4%5C-producing-materials)
   - [5\. Media Outreach](#5%5C-media-outreach)
-
-- [Cultural Landscape](#cultural-landscape)
+- [The Land to Which We Are Called](#the-land-to-which-we-are-called)
   - [Bangkok](#bangkok)
   - [Religion](#religion)
   - [Culture](#culture)
   - [Our Location in the City Center](#our-location-in-the-city-center)
-- [Much to praise him for Already...](#much-to-praise-him-for-already)
-  - [1\. A New Church in Central Bangkok](#1%5C-a-new-church-in-central-bangkok)
-  - [2\. Gospel Proclamation](#2%5C-gospel-proclamation)
-  - [3\. New People Saved and Baptized](#3%5C-new-people-saved-and-baptized)
-  - [4\. New Disciples of Jesus](#4%5C-new-disciples-of-jesus)
-  - [5\. New Disciples Discipling Others](#5%5C-new-disciples-discipling-others)
-  - [6\. New Guys Training for Ministry](#6%5C-new-guys-training-for-ministry)
-  - [7\. New Materials Prepared](#7%5C-new-materials-prepared)
-  - [Vision for the Future](#vision-for-the-future)
-
-- [Looking forward...](#looking-forward)
-  - [What we are preparing for](#what-we-are-preparing-for)
-  - [Ministry Timeline](#ministry-timeline)
+- [Praising Him for our First Term...](#praising-him-for-our-first-term)
+- [5 Goals Looking forward...](#5-goals-looking-forward)
 
 <!-- /TOC -->
 
@@ -41,23 +28,29 @@ This is to introduce you to our family and the ministry God has given us. After 
 
 --------------------------------------------------------------------------------
 
-# 2019 Furlough
+# 2019 Furlough Goals
 
-> Maybe just make a PDF download link
+> Make a PDF download link
 
 To prepare for the next season of ministry, we are taking our first full furlough since arriving in Thailand 5 years ago. The Lord has worked mighty in our lives and ministry and we would love to share it with you and your church family.
 
-- #### Needing to raise additional support
+As we are back on this furlough, we would ask that you would pray that we could raise the additional support needed for the next years of ministry in Thailand.
 
- When arriving in Thailand years ago, most of what we would do was abstract and unknown. Now we know exactly what the ministry that the Lord would lead us to looks like, and how much it costs.
+  - **Ministry Support for a Growing Ministry**
 
- Initially, we had thought we would be on the outer edge of Bangkok, but the Lord led us to plant our church right in the center. The opportunities are amazing, but the cost is as well. Everything is significantly more expensive than a less ambitious plan. We have taken a risk for His Kingdom, and the Lord has provided up until this point, but we are desperately needing to raise additional monthly support to be able to advance into the next stage of ministry.
+    When arriving in Thailand years ago, most of what we would do was abstract and unknown. Now we know exactly what the ministry that the Lord would lead us to looks like, and how much it costs.
 
- We have started right in the middle
+    Initially, we had thought we would be on the outer edge of Bangkok, but the Lord led us to plant our church right in the center of this megacity.
 
- In addition, our family has almost doubled in size and will be needing to put our 3 girls through school.
+    The opportunities are amazing, but the cost is as well. Everything is significantly more expensive than a less ambitious plan. We have taken a risk for His Kingdom, and the Lord has provided up until this point, but we are desperately needing to raise additional monthly support to be able to advance into the next stage of ministry.
 
-- #### Report in to our faithful supporters
+  - **Personal Support for a Growing Family**
+
+    Additionally, our family has almost doubled in size since arriving, and with them growing and starting school, we need to raise additional personal support as well.
+
+  - **Report Back to Supporters**
+
+   In Addition, we look forward to reporting back to the faithful supporters who have enabled us to live and minister in Thailand for the past 5 years.
 
 --------------------------------------------------------------------------------
 
@@ -72,16 +65,14 @@ What does it look like?
 
 - **Kids Ministry** - Lori has done a fantastic job discipling and organizing kids church, workers, and other activities, and we have seen several children make professions of faith.
 
- > PICTURE OF MUSIC TEAM
+ > Picture of Music Team
 
 - **Music** -- The Lord has given us a great music team of professionally trained musicians that have come together and serve the Lord and our church faithfully each week.
 
  > Picture of preaching
 
- > Video of me preaching
-
 - **Training for Ministry** - Guys training for ministry preach short messages, teach offering devotionals, longer messages, and are involved in teaching different classes.
-
+> Video of preaching
 - **Ladies Ministry** - Ladies give of their time and money each week to prepare a meal every Sunday afternoon, and we eat as a church together before the 2nd service/Sunday school time to follow.
 
 ### 2\. Daily Discipleship and Training
@@ -94,7 +85,7 @@ Usually lasting several hours each day, we start with prayer, discuss any curren
 
 This simple habit has been the foundation of our growth.
 
-### 3\. Special Events
+### 3\. Special Events and Outreach
 
 - #### English classes
 
@@ -106,9 +97,16 @@ This simple habit has been the foundation of our growth.
 
 - #### Events
 
- Christmas seems to be the most effective holiday to promote, and we have been blessed to have people that have the heart and ability to make it very effective. Without missionary money, each year the church has been able to gather money on their own to buy small prizes and presents, promote through various ways, write and put on plays, and see literally hundreds come to hear the Gospel. It is a beautiful time to see the church body working together.
+ **Christmas** seems to be the most effective holiday to promote, and we have been blessed to have people that have the heart and ability to make it very effective. Without missionary money, each year the church has been able to gather money on their own to buy small prizes and presents, promote through various ways, write and put on plays, and see literally hundreds come to hear the Gospel. It is a beautiful time to see the church body working together.
 
-### 4\. Producing Materials
+ **Kids Day** is a Thai holiday that is soon after the New Year and we are able to see many that come to Christmas, return for Kid's Day activities.
+
+ **Many more...** like Thanksgiving, activites in our home, Mother's Day, Father's Day, Valentines, movie nights, conferences, etc. are all good opportunities where we have seen the church come together to invite friends.
+
+- #### Music Classes
+ Several guys in the church are professionally trained musicians and beyond regular music practice, give lessons to those in the church and community that want to learn.
+
+### 4\. Materials
 
 In a country of 0.7% Christian, and no Christian heritage, there is a dearth of materials. Most things that American churches take for granted do not exist in Thai. I would not be surprised if there were less than 1000 total Christian books, of any kind, in Thai.
 
@@ -127,7 +125,7 @@ So, since everything is an opportunity, we have done a few projects thus far. So
 
   - Entire New Testament Video Bible for YouTube
 
-- ** Kids Sunday School Curriculum**
+- **Kids Sunday School Curriculum**
 
 - **Adult Sunday school Curriculum**
 
@@ -137,81 +135,64 @@ So, since everything is an opportunity, we have done a few projects thus far. So
 
 > Baptism pictures
 
-- #### Facebook
-
- Bangkok is the #2 global city on Facebook, so needless to say, we have tried to use it.
+- **Facebook** -- Bangkok is the #2 global city on Facebook, so needless to say, we have tried to use it.
 
  2000 people follow our little church's page where post the Live stream of our services, sermon videos, devotionals, events, and other useful content.
 
-- #### Youtube
+- **Youtube** -- Along with church services, we have also put up the Entire New Testament as a type of Audio/Video Bible that will live in posterity.
 
- Along with church services, we have also put up the Entire New Testament as a type of Audio/Video Bible that will live in posterity.
+- **Materials into the schools**
 
-- #### Materials into the schools
-
-> That one picture
+ > That one picture
 
 --------------------------------------------------------------------------------
 
 # The Land to Which We Are Called
 
-### Bangkok
+### Bangkok, Thailand -- 14 Million People
+#### Our Location in the City Center of Bangkok
+> Map of our location
 
-14 Million People --- Think a bad neighborhood in New York City, not village huts
+We are located in the very center of Bangkok. An area with 22k people per sq. km. (about .6 mile). The Lord has provided a post in the middle of this area where thousands every day pass by and see a church.
 
-### Religion
+#### Thai Religion – 99% Buddhist, 0.7% Christian
 
 > Need pictures here to illustrate
 
-99% Buddhist 0.7% Christian
+- **Folk Buddhism**, which is largely more akin to spiritism and superstition than strict Buddhism. The questions that we address often have to do with spirits, demons, spiritual power and help, and what they need to do to have a "better life," basically meaning, what rituals do they need to perform to try our God out.
 
-Folk Buddhism, which is largely more akin to spiritism and superstition than strict Buddhism. The questions that we address often have to do with spirits, demons, spiritual power and help, and what they need to do to have a "better life," basically meaning, what rituals do they need to perform to try our God out.
+- **Prosperity** We are surrounded by prosperity preaching all around -- Buddhist AND Christian. Most come with a vague notion of gaining some Christian luck.
 
-### Culture
+- **Immorality** -- There are 20+ VERY large Brothels within 1 mile of our church. In fact, we share a parking lot with one. Also, though not an official statistic, if you ask a person under 30 what percentage of their friends are some other sexual orientation, the answer will be 30-50%.
+
+Sin is abundant, but Grace is more, and the fields are white unto harvest.
+
+#### Thai Culture
+Though there is rampant immorality, it is not what they are most proud of.
 
 Thailand is a very homogenous culture with a very strong national and religious identity. We often hear rejection in the form of "I'm Thai" rather than "I'm Buddhist" because to the average Thai, they are one in the same.
 
-Persecution vs. Cultural Pressure: Thai have very strong family and community bonds, and are on the opposite end of the "American Individualism" spectrum, culturally speaking. While this is not a bad quality, it is a source of serious pressure for a new believer. A large percentage of people in our ministry face constant pressure from their families and community for being a Christian and sadly, many have turned away as a result.
-
-### Our Location in the City Center
-
-- Thousands of people pass in front of our church every day
-
-- > Gif of people passing by
-
-- 22k per sq kilo ---not in a village hut, but more like in the dark side of NY
-
-- Prosperity preaching all around --- buddhist or Christian
-
-- Brothels all around # within 1 mile
-
-- > Pictures of the giant ones within 1 km of our church
-
-Some of what we have seen the Lord do Praise the Lord for what he has done Looking Back on what He has done...We have
+**Persecution vs. Cultural Pressure:** Thai have very strong family and community bonds, and are on the opposite end of the "American Individualism" spectrum, culturally speaking. While this is not a bad quality, it is a source of serious pressure for a new believer. A large percentage of people in our ministry face constant pressure from their families and community for being a Christian and sadly, many have turned away as a result.
 
 --------------------------------------------------------------------------------
-> Count quarterly or monthly pivot table of attendance to count attendance
-
-> how many people we see every month Count total visitors that have come through the church
-
-----
 
 # Praising Him for our First Term...
-
-> - ### A New Church in Central Bangkok
+> - #### A New Language (ภาษาไทย)
+>   Learned Thai well enough to teach the Bible 20-30 hours a week in it. Praise the Lord!
+> - #### A New Church in Central Bangkok
 >    A light in a dark place full of new believers
-> - ### Gospel Proclamation
+> - #### A New Witness
 >    The thousands who have heard of the Gospel for the first time and are now seeing it lived out through new fellow Thai believers.
-> - ### New People Saved and Baptized
+> - #### New People Saved and Baptized
 >    A community of New Believers in a pagan culture, growing and living out their new faith. Acts is alive.
-> - ### New Disciples of Jesus
+> - #### New Disciples of Jesus
 >    People Joyful and eager to learn and serve God and others.
-> - ### New Disciples Discipling Others
+> - #### New Disciples Discipling Others
 >    Regular groups, classes, Bible studies, one-on-one discipleship, and other community activities as new believers are a light in the world.
-> - ### New Guys Training for Ministry
+> - #### New Guys Training for Ministry
 >    Learning and Teaching Truth Daily
 > **Pic of us sitting around, jack preaching**
-> - ### New Materials Prepared
+> - #### New Materials Prepared
 >    New Books, tools, songs, and sermons in the Thai language for the first time
 
 --------------------------------------------------------------------------------
@@ -220,12 +201,12 @@ Some of what we have seen the Lord do Praise the Lord for what he has done Looki
 
 Here is some of what we are asking the Lord to do in our next term...
 
-> #### 1\. Purchasing land for the church
+> #### 1\. Purchase land for the church
 > #### 2\. Establishing a Foundation
-> #### 3\. Start more Churches
-> #### 4\. Another church - we have plans to start another a few blocks away
-> #### 5\. See God build a team
-- long for people who will come and give their lives to learn a language, give up some comforts to get the gospel to 99% of Thai people who don't know Jesus
+> #### 3\. Plant more Churches out from the initial work
+> #### 4\. Start a more formal school for Ministry Training
+> #### 5\. See God Raise up Workers and Build a Team to reach Thailand
+- We long for people who will come and give their lives to learn a language and give up some comforts to get the gospel to 99% of Thai people who don't know Jesus.
 
 --------------------------------------------------------------------------------
 
