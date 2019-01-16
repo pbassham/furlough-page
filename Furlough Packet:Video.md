@@ -40,7 +40,7 @@ Our Current Ministry
 
 What does it look like?
 
-#### 1. Daily Discipleship
+### 1. Daily Discipleship
 
  - Pic gallery of this
 
@@ -50,7 +50,7 @@ What does it look like?
 
  This simple habit has been the foundation of our growth.
 
-#### 2. Weekly - Services
+### 2. Weekly - Services
 
  6 Days a week we have various meetings, services, discipleship times, classes, and activities.
 
@@ -70,7 +70,7 @@ What does it look like?
 
  Ladies give of their time and money each week to prepare a meal every Sunday afternoon, and we eat as a church together before the 2nd service/Sunday school time to follow.
 
-#### 3. Special Events
+### 3. Special Events
 
 ##### English classes
 
@@ -84,7 +84,7 @@ What does it look like?
 
  Christmas seems to be the most effective holiday to promote, and we have been blessed to have people that have the heart and ability to make it very effective. Without missionary money, each year the church has been able to gather money on their own to buy small prizes and presents, promote through various ways, write and put on plays, and see literally hundreds come to hear the Gospel. It is a beautiful time to see the church body working together.
 
-#### 4. Producing Materials
+### 4. Producing Materials
 
 
  In a country of 0.7% Christian, and no Christian heritage, there is a dearth of materials. Most things that American churches take for granted do not exist in Thai. I would not be surprised if there were less than 1000 total Christian books, of any kind, in Thai.
@@ -114,17 +114,17 @@ What does it look like?
 
 > Baptism pictures
 
-### Facebook Page
+#### Facebook Page
 
  Bangkok is the \#2 global city on Facebook, so needless to say, we have tried to use it.
 
  2000 people follow our little church's page where post the Live stream of our services, sermon videos, devotionals, events, and other useful content.
 
-### Youtube
+#### Youtube
 
  Along with church services, we have also put up the Entire New Testament as a type of Audio/Video Bible that will live in posterity.
 
-### Materials into the schools
+#### Materials into the schools
 
 > That one picture
 
@@ -179,29 +179,29 @@ come through the church
 
  > A light in a dark place full of new believers
 
-#### Gospel Proclamation
+#### 2. Gospel Proclamation
 
 > The thousands who have heard of the Gospel for the first time and are now seeing it lived out through new fellow Thai believers.
 
-#### New People Saved and Baptized
+#### 3. New People Saved and Baptized
 
 > A community of New Believers in a pagan culture, growing and living out their new faith. Acts is alive.
 
-#### New Disciples of Jesus
+#### 4. New Disciples of Jesus
 
 > People Joyful and eager to learn and serve God and others.
 
-#### New Disciples Discipling Others
+#### 5. New Disciples Discipling Others
 
 > Regular groups, classes, Bible studies, one-on-one discipleship, and other community activities as new believers are a light in the world.
 
-#### New Guys Training for Ministry
+#### 6. New Guys Training for Ministry
 
 > Learning and Teaching Truth Daily
 
 > **Pic of us sitting around, jack preaching**
 
-#### New Materials Prepared
+#### 7. New Materials Prepared
 
 > New Books, tools, songs, and sermons in the Thai language for the first time
 
