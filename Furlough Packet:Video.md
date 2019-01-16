@@ -227,7 +227,7 @@ New Guys Training for Ministry
 
 New Materials Prepared
 ----------------------
-
+test
  New Books, tools, songs, and sermons in the Thai language for the first time
 
 ---
